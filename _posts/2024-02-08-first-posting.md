@@ -4,4 +4,4 @@
 
 오오오오호호호 
 
-![GitHub_Invertocat_Logo](/Users/juni/Documents/GitHub/Footsome48.github.io/images/2024-02-08-first-posting/IMG_7296.png)
+![KakaoTalk_Image_2023-02-27-14-01-31](/Users/juni/Documents/GitHub/Footsome48.github.io/images/2024-02-08-first-posting/KakaoTalk_Image_2023-02-27-14-01-31.png)
