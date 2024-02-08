@@ -4,4 +4,4 @@
 
 오오오오호호호 
 
-![GitHub_Invertocat_Logo.svg](/Users/juni/Downloads/GitHub_Invertocat_Logo.svg.png)
+![GitHub_Invertocat_Logo.svg](/Users/juni/Documents/GitHub/Footsome48.github.io/images/GitHub_Invertocat_Logo.svg.png)
